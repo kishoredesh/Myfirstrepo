@@ -1,2 +1,40 @@
 # Myfirstrepo
-Just trying to get a hang of repositories and GIT
+Just trying to get a hang of repositories and GI
+
+sdaasdas
+d
+d
+asd
+as
+das
+das
+d
+asd
+asd
+asd
+as
+d
+asd
+as
+d
+as
+d
+as
+da
+s
+das
+dasd
+as
+das
+d
+asd
+as
+dasd
+asd
+as
+d
+as
+das
+d
+as
+dasT
